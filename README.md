@@ -1,0 +1,2 @@
+# Sonika-Engineers
+As an Industrial Fan Manufacturers in India, Sonika Engineers designs and creates Industrial fans to cover an array of parameters like range of pressure, range of Volume &amp; range of Power to suit our clients requirement. We create Industrial Fan in varying capacities to cater different industries for various specifications. However, Sonika Engineers as Industrial Fan Manufacturers in India specializes in providing custom made industries fans as well to suit our clients specifications.
